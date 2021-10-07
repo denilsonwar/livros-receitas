@@ -4,4 +4,4 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Churrasco de cupim:
 - Pavê
-
+- Delícia de abacaxi
